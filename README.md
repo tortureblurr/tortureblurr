@@ -12,9 +12,9 @@
     <h3>Wsp, call me death or whatever idc much abt names LOL</h3>
       <p>
         If you couldn't tell from my profile i love rocket, i yumeship with her ok and im nonsharing idgaf what anyone got 2 say abt that!!<br>       
-        I mainly use he/him pronouns but feel free to use she/it/neos/xenos whenever just no they<br>       
-        I'm disabled (chronic knee pain) and i have multiple disorders, i'm also a system so pls be patient with me<br>        
-        Don't be parasocial with me LOL<br> 
+        I mainly use he/him pronouns but feel free to use she/it/neos/xenos whenever just no they.<br>       
+        I'm disabled (chronic knee pain) and i have multiple disorders, i'm also a system so pls be patient with me.<br>        
+        Don't be parasocial with me.<br> 
         Read socials byi
       </p>
       <p>
