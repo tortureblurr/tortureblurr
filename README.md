@@ -1,30 +1,3 @@
-  2
-  3
-  4
-  5
-  6
-  7
-  8
-  9
- 10
- 11
- 12
- 13
- 14
- 15
- 16
- 17
- 18
- 19
- 20
- 21
- 22
- 23
- 24
- 25
- 26
- 27
- 28
 <p align="center">
   <img src="https://github.com/user-attachments/assets/553926ad-2f21-4c91-b11f-2f925b524fed" alt="kaomoji" width="180">
 </p>
