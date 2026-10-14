@@ -21,7 +21,7 @@
         <code>“If you tell the truth, you don't have to remember anything.”</code><br>
       </p>
       <p>
-        <a href="https://schizofcuk.atabook.org/">ata</a> &nbsp;&bull;&nbsp; 
+        <a href="https://tortureblurr.atabook.org/">ata</a> &nbsp;&bull;&nbsp; 
         <a href="https://guns.lol/schizofuck.">guns.lol</a> &nbsp;&bull;&nbsp; 
         <a href="https://erection.straw.page/">strawpage</a> &nbsp;&bull;&nbsp; 
         <a href="https://pronouns.cc/@Schizotard">pronouns.cc</a> &nbsp;&bull;&nbsp; 
