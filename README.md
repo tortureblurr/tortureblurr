@@ -22,7 +22,7 @@
       </p>
       <p>
         <a href="https://tortureblurr.atabook.org/">ata</a> &nbsp;&bull;&nbsp; 
-        <a href="https://guns.lol/schizofuck.">guns.lol</a> &nbsp;&bull;&nbsp; 
+        <a href="https://guns.lol/Hypergraft">guns.lol</a> &nbsp;&bull;&nbsp; 
         <a href="https://erection.straw.page/">strawpage</a> &nbsp;&bull;&nbsp; 
-        <a href="https://pronouns.cc/@Schizotard">pronouns.cc</a> &nbsp;&bull;&nbsp; 
+        <a href="https://pronouns.cc/@Hypergraft">pronouns.cc</a> &nbsp;&bull;&nbsp; 
         <a href="https://toyhou.se/Carnibreaker">toyhouse</a>
